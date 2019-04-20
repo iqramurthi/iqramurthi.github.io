@@ -1,1 +1,0 @@
-# iqramurthi.github.io
